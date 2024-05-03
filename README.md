@@ -1,1 +1,1 @@
-# Energetic-Community
+# Energetic-Community Decision Making
